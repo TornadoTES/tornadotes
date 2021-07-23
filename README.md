@@ -1,4 +1,4 @@
-### Oh, you fond me
+### Oh, you found me
 
 <!--
 Hello, my name is TES.
